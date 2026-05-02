@@ -1,4 +1,4 @@
-<img src="https://file.garden/ZYrDFz02dgP5Z-Py/42c208502b9cc44f481a03d86ecd1b81.jpg" alt="tord and edd" width="400" align="left">
+<img src="https://file.garden/ZYrDFz02dgP5Z-Py/42c208502b9cc44f481a03d86ecd1b81.jpg" alt="tord and edd" width="210" align="left">
 
 $\color{#ba040a}\large{\texttt{(҂ ཀ 0)}}$ $\color{#10ba04}\large{\texttt{brandon or meepu . any prns except she}}$ <br>
 <img src="https://file.garden/ZYrDFz02dgP5Z-Py/IMG-8067.gif"> $\color{#10ba04}\large{\texttt{audhd bipolar . no dni just dont be a}}$ $\color{#ba040a}\large{\texttt{weirdo}}$ <br>
